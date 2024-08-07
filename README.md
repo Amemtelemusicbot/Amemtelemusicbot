@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Amemtelemusicbot
-- 👀 I’m interested in sex
+- 👋 Hi, I’m @Amentelemusicbot
+- 👀 I’m interested in blablabla
 - 🌱 I’m currently learning more more Ai
 - 💞️ I’m looking to collaborate on telegram 
 - 📫 How to reach me ...
